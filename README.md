@@ -11,7 +11,7 @@
 
 > 👨‍💻 All of my projects are available at **[https://github.com/tkmourya](https://github.com/tkmourya)**
 
-> 🌐 How to reach me **https://portfoliotarun.vercel.app**
+> 🌐 contact me by itself **https://portfoliotarun.vercel.app**
 
 > 📫 How to reach me **tkmourya@proton.me**
 
