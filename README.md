@@ -13,7 +13,7 @@
 
 > 🌐 contact me by **https://portfoliotarun.vercel.app**
 
-> 📫 How to reach me **tkmourya@proton.me**
+> 📫 How to reach me **tkmourya@yahoo.com**
 
 
 
